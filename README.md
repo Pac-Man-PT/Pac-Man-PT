@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi there 👋 I'm PAC-MANPT!<br><br>🔭 I’m currently working on FIVEM QB-CORE FRAMEWORK<br><br>👀 I’m interested in learning more and more, evolving my skills, and becoming better.<br><br>📫 How to reach me Pac-ManPT#9921<br><br>
+👋 Hi there 👋 I'm PAC-MANPT!<br><br>🔭 I’m currently working on FIVEM<br><br>👀 I’m interested in learning more and more, evolving my skills, and becoming better.<br><br>📫 How to reach me pacmanpt on discord<br><br>
 
 
 ## 🌐 Socials:
